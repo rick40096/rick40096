@@ -4,7 +4,7 @@
 <img src="https://readme-typing-svg.herokuapp.com?color=1C71FA&width=420&lines=no+one;ℕ@+'-'+օռɛ">
 </p>
 <p align="center">
-  <a href="https://t.me/ricks_005"><img src="https://i.pinimg.com/564x/fb/a0/ba/fba0ba2c33fde3822352fdee5fce1c9b.jpg" alt="ℕ@._.օռɛ"></a>
+  <a href="https://t.me/ricks_005"><img src="https://i.pinimg.com/564x/fb/a0/ba/fba0ba2c33fde3822352fdee5fce1c9b.jpg" alt="RICK"></a>
   
   
   
